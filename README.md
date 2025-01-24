@@ -54,7 +54,7 @@ Available for technical projects in cybersecurity, data, or AI.
 ## 🌍 Languages
 
 - French: Native  
-- English: C1 level  
+- English: B2 level  
 
 ## 📫 Contact
 
